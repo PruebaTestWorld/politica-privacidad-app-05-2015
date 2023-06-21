@@ -1,1 +1,0 @@
-# politica-privacidad-app-05-2015
